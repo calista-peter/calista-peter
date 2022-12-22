@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Calista Peter
+- 👀 I’m interested in Graphics Design
+- 🌱 I’m currently learning Adobe Photoshop
+- 💞️ I’m looking to collaborate on Mobile App Design
+- 📫 How to reach me: calistalucian@gmail.com
